@@ -1,0 +1,9 @@
+Copy write
+
+
+ORIGINAL OWNER 
+
+[SMITH SUMMER DAWN]
+(2023 FEB)
+Telephone 📞
+918-418-7165
